@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **TYAtanasov21@codingburgas.bg**
 
-- ⚡ Fun fact **I love cheesburgers**
+- ⚡ Fun fact **I love everyone**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

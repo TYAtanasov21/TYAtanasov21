@@ -4,8 +4,6 @@
 
 - 🌱 I’m currently learning **C++ and TS**
 
-- 📫 How to reach me **+359882876672**
-
 - ⚡ Fun fact **I love you**❤️
 
 <h3 align="left">Connect with me:</h3>
